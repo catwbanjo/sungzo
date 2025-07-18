@@ -1,2 +1,1 @@
-PSST YOU TAKE A LOOK AT THAT PHAHAHAHAHA LOLOL <br/>
-<b>what are you interested in?</b>
+I usually don't take time customizing my README.md. enjoy a blank page.
